@@ -6,7 +6,7 @@
 
 - 🌱 I'm currently learning **Python**
 
-- 💬 Ask me about **Find ways to learn something new about this Niche.**
+- 💬 Ask me about **Find new ways to learn something about this Niche.**
 
 - 📫 How to reach me **ahmadaliarshadofficial@gmail.com**
 
