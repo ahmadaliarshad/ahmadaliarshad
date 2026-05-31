@@ -8,7 +8,7 @@
 
 - 💬 Ask me about **Find new ways to learn something about this Niche.**
 
-- 📫 How to reach me **ahmadaliarshadofficial@gmail.com**
+- 📫 How to reach me **ahmadaliarshad.ai@gmail.com**
 
 - ⚡ Fun fact **I love to know about new things.**
 
