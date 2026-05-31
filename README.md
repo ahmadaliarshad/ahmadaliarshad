@@ -1,6 +1,6 @@
 # Hi 👋, I'm Ahmad Ali Arshad
 
-### A passionate Learner of Artificial Intelligence & Data Science. I am student at Saylani Mass IT Training Gujranwala.
+### Future Data Scientist | Debugging My Way to Expertise | Python · ML · AI · Data Analysis.
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=ahmadaliarshad&label=Profile views&color=0e75b6&style=flat" alt="ahmadaliarshad" /> </p>
 
